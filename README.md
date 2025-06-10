@@ -7,6 +7,7 @@ Other platforms will be supported soon enough.
 Join to our Discord Server to get more news about next ports and plans: https://discord.gg/XURjMCGNFs
 
 Current Team Members:
+
 • [MaysLastPlay](https://youtube.com/@MaysLastPlay)
 
 • [Idklool](https://youtube.com/Idklool122)
