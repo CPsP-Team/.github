@@ -18,6 +18,8 @@ Current Team Members:
 
 • [Heropowerbrine](https://youtube.com/@heropowerbrine)
 
+• [FNF BR](https://youtube.com/@fnf-br)
+
 • [MarioMaster](https://youtube.com/@MarioMaster39) 
 
 P.S.: a Note from Mays, Mario is still in the void, aka left FNF Porting-
