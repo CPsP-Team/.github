@@ -1,3 +1,7 @@
+<img width="1783" height="1114" alt="1000026178" src="https://github.com/user-attachments/assets/d3d38cb8-08dc-4182-9031-6a480df726c6" />
+
+<div align="center" style="font-weight: bold">
+
 # Cool People's Purgatory (CPsP/CPP)
 
 We are a team of various FNF' (Friday Night Funkin') Porters dedicated to port engines and mods to Mobile Devices.
@@ -23,3 +27,4 @@ Current Team Members:
 • [MarioMaster](https://youtube.com/@MarioMaster39) 
 
 P.S.: a Note from Mays, Mario is still in the void, aka left FNF Porting-
+<br/>
