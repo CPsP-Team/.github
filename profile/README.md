@@ -26,5 +26,9 @@ Current Team Members:
 
 • [MarioMaster](https://youtube.com/@MarioMaster39) 
 
+• [Stefan2008](https://m.youtube.com/channel/UC9Nwf21GbaEm_h0Ka9gxZjQ)
+
+• [JustX](https://github.com/GreenColdTea)
+
 P.S.: a Note from Mays, Mario is still in the void, aka left FNF Porting-
 <br/>
