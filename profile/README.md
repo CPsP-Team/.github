@@ -18,6 +18,8 @@ Current Team Members:
 
 • [Idklool](https://youtube.com/@Idklool122)
 
+• [Cream.BR](https://youtube.com/@creambroficial)
+
 • [MoxieDev](https://youtube.com/@moxie-the-specialist)
 
 • [Heropowerbrine](https://youtube.com/@heropowerbrine)
