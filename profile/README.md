@@ -16,7 +16,7 @@ Current Team Members:
 
 • [MaysLastPlay](https://youtube.com/@MaysLastPlay)
 
-• [Idklool](https://youtube.com/Idklool122)
+• [Idklool](https://youtube.com/@Idklool122)
 
 • [MoxieDev](https://youtube.com/@moxie-the-specialist)
 
