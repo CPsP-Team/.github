@@ -20,7 +20,7 @@ Current Team Members:
 
 • [Cream.BR](https://youtube.com/@creambroficial)
 
-• [MoxieDev](https://youtube.com/@moxie-the-specialist)
+• [MoxieDev](https://youtube.com/@moxiedev)
 
 • [Heropowerbrine](https://youtube.com/@heropowerbrine)
 
